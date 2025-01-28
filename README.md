@@ -1,0 +1,2 @@
+# grataka
+kami selalu ada
